@@ -1,5 +1,5 @@
 # Hi, I'm Idalia!  👋👩🏾‍🔬
-I’m deeply passionate about evolutionary biology and have hands-on experience in population genetics.<br>I especially love studying domesticated plants 🌱, their wild crop relatives, and the fascinating pathogens that interact with them!
+I’m deeply passionate about evolutionary biology and have hands-on experience in population genomics, genome evolution, and transcriptomics.<br>I especially love studying domesticated plants 🌱, their wild crop relatives, and the fascinating pathogens that interact with them!
  - 📫 How to reach me: icrojasb@gmail.com
  - 😄 Pronouns: She/Her/Hers Ella/La
  - ⚡ Fun fact: I love cooking Mexican Food. Maize 🌽​ is my goddess 
